@@ -3,4 +3,6 @@
 
 
 você encontrou dados verdadeiros da plataforma de recebíveis de cartões
+shelton.hauck1636@quartzotech.com
+
 
